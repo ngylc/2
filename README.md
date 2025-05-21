@@ -9,7 +9,7 @@
 
 TG小程序:https://t.me/NagaWGbot   
 
-TG频道:https://t.me/NagaWG   
+TG频道:https://t.me/NagaFC   
 
 在线客服: https://t.me/Naga198  
 
