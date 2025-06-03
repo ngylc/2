@@ -3,9 +3,9 @@
 
 ## 🚀 链接速查
 
-地址一:https://ng257.one  
+地址一:https://jsyl.li  
 
-地址二:https://ng322.vip   
+地址二:https://jinsha.li   
 
 TG小程序:https://t.me/NagaWGbot   
 
