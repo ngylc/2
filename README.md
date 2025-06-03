@@ -1,4 +1,4 @@
-# 🎉 金界最新地址更新啦！
+# 🎉 金沙最新地址更新啦！
 🔥 快收藏，别错过好玩的！ 🔥
 
 ## 🚀 链接速查
@@ -9,9 +9,9 @@
 
 TG小程序:https://t.me/NagaWGbot   
 
-TG频道:https://t.me/NagaFC   
+TG频道:https://t.me/JSYLBET   
 
-在线客服: https://t.me/Naga198  
+在线客服: https://t.me/JSYLkefu  
 
 
 ## ⚡ 小提示
