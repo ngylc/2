@@ -7,11 +7,6 @@
 
 地址二:https://jinsha.li   
 
-TG小程序:https://t.me/NagaWGbot   
-
-TG频道:https://t.me/JSYLBET   
-
-在线客服: https://t.me/JSYLkefu  
 
 
 ## ⚡ 小提示
